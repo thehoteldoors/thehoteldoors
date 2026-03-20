@@ -15,7 +15,7 @@ $\textcolor{#543b20}{\text{✦}}$
 $\textcolor{#855e34}{\text{Whisper to interact preferably! I'm always offtab, but I enjoy people cuddling me ୭}}$ $\textcolor{#141731}{\text{@Pixelbricks < My Parrot/Expendable!!}}$ $\textcolor{#855e34}{\text{@MisasLove + @MlIRAGE < oomfs!!}}$
 $\textcolor{#1d2a25}{\text{@B-Zuka < Stupid LOSER!!!! my dad btw hi john}}$
 
-[atabook](https://directorwifies.atabook.org/) [main strawpage](https://harlequinstent.straw.page/) [prns.cc](https://pronouns.cc/@chanceforsaken)
+[atabook](https://directorwifies.atabook.org/) [main strawpage](https://doorsliketourist.straw.page/) [prns.cc](https://pronouns.cc/@chanceforsaken)
 
 $\textcolor{#855e34}{\text{Castle in Hollywood --- Laufey}}$
 $\textcolor{#543b20}{\text{Forever helping you, Guiding Light.}}$
