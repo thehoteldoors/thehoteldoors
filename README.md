@@ -8,7 +8,7 @@ $\textcolor{#9e9386}{\text{We're such a mess together...}}$
 
 <img width="70" src="https://komarev.com/ghpvc/?username=CHANCEFORSAKEN&color=9e9386&label=doors">
 
-$\textcolor{#9e9386}{\text{Endless Torment Trio \(}}$ $\textcolor{#786c5d}{\text{Doors,}}$ $\textcolor{#34474f}{\text{Pressure,}}$ $\textcolor{#222938}{\text{Grace}}$ $\textcolor{#9e9386}{\text{) enjoyer.}}$ $\textcolor{#786c5d}{\text{@Pixelbricks < MY EXPENDABLE!!!}}$ $\textcolor{#786c5d}{\text{@B-Zuka < Stupid LOSER!!!! my dad btw hi john grace}}$
+$\textcolor{#9e9386}{\text{Endless Torment Trio \(}}$ $\textcolor{#786c5d}{\text{Doors,}}$ $\textcolor{#34474f}{\text{Pressure,}}$ $\textcolor{#222938}{\text{Grace}}$ $\textcolor{#9e9386}{\text{) enjoyer.}}$ $\textcolor{#786c5d}{\text{@Pixelbricks < MY EXPENDABLE!!!}}$ $\textcolor{#786c5d}{\text{@B-Zuka < IVARYYYYYY hows the weather up there! MY JOHN GRACE HI}}$
 
 $\textcolor{#9e9386}{\text{Aromantic, Demiboy. Maybe hides freely, will sometimes check socials of everyone who interacts with me if needed.}}$
 
