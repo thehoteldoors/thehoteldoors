@@ -19,7 +19,7 @@ $\textcolor{#a73d50}{\text{𖹭r flint, noobante}}$
 
 $\textcolor{#fbb7b7}{\text{cud comf, int / c*h always free}}$
 
-<img align="left" width="300" src="https://github.com/thehoteldoors/thehoteldoors/blob/f7171291e8cdfa71e3e25547c4835d2f665ce515/Untitled64_20260428182558.webp">
+<img align="left" width="200" src="https://github.com/thehoteldoors/thehoteldoors/blob/f7171291e8cdfa71e3e25547c4835d2f665ce515/Untitled64_20260428182558.webp">
 
 <div align="center">
 
